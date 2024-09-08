@@ -1,4 +1,4 @@
-Connecting Women in STEM: A beautiful place for women to connect with one another
+Connecting Women in STEM - A beautiful place for women to connect with one another
 
 Home Page:
 
