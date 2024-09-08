@@ -1,5 +1,4 @@
 Connecting Women in STEM - A beautiful place for women to connect with one another
-https://12e55e3e-8f86-4b78-9dd6-7c024c763a5c-00-1zxb6tr9gqk5e.spock.replit.dev/
 
 Home Page:
 
